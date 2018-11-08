@@ -1,4 +1,4 @@
-## The Bihar government offer industrial land to CMD Rakesh Pandey of Bravo pharma to set up his company unit in Bihar. The Government has assured that the transferring of land will be done in next few days.[Map model of offered land](https://www.biadabihar.in/wp-content/uploads/2018/09/Industrial__Area_Muzaffarpur-Model.pdf)
+## The Bihar government offers industrial land to CMD Rakesh Pandey of Bravo pharma to set up his company unit in Bihar. The desired formalities and documentations is in process and very soon the formalities will be completed.[Map model of offered land](https://www.biadabihar.in/wp-content/uploads/2018/09/Industrial__Area_Muzaffarpur-Model.pdf)
 ![Nodei stats](https://lh4.googleusercontent.com/kRMVnJLMkolU_oEzbH33jxPhEFfRhGeNvvt36PrU0oVpq9Y7ufGIrghNG11y2dFPYC-OAZbQtmMXZlGpyGPB=w1307-h650-rw)
 
 " 
