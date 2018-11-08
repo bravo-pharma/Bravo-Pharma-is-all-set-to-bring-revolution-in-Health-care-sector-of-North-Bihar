@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## The Bihar government offer industrial land to CMD Rakesk Pandey of Bravo pharma to set up his company unit in Bihar. The Government has assured that the transfering of land will be done in next few days.
 
 You can use the [editor on GitHub](https://github.com/roykeshavsharma/roy/edit/gh-pages/README.md) to maintain and preview the content for your website in Markdown files.
 
