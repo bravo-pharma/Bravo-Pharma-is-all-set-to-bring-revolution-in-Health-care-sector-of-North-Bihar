@@ -1,10 +1,7 @@
-## The Bihar government offer industrial land to CMD Rakesk Pandey of Bravo pharma to set up his company unit in Bihar. The Government has assured that the transfering of land will be done in next few days.
+## The Bihar government offer industrial land to CMD Rakesh Pandey of Bravo pharma to set up his company unit in Bihar. The Government has assured that the transferring of land will be done in next few days.[Map model of offered land](https://www.biadabihar.in/wp-content/uploads/2018/09/Industrial__Area_Muzaffarpur-Model.pdf)
 
-You can use the [editor on GitHub](https://github.com/roykeshavsharma/roy/edit/gh-pages/README.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-To
+" To
 
 The Investment Commissioner 
 
@@ -32,4 +29,4 @@ We would be honored to meet the personals of concerned department and further, l
 
 Look forward to hear from you at the earliest. 
 
-With warm regards 
+With warm regards "
